@@ -1,2 +1,2 @@
-# Nitish Makhija
+# Harshit Singhal
 Resume
